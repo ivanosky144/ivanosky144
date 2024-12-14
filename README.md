@@ -1,1 +1,1 @@
-Interested with software engineering and applied math
+Interested with software engineering and applied math. Currently building Temuka.
